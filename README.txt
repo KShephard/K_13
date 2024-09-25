@@ -1,1 +1,1 @@
-No description N/A
+All hail the glorious Emperor of mankind!
